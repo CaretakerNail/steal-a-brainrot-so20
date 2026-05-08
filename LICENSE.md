@@ -1,4 +1,4 @@
-
+elite Script for steal a brainrot offers the most advanced steal a brainrot Script, with auto-sell and no cooldown. Perfect for dominating any match.
 
 
 
